@@ -1,1 +1,0 @@
-# neehal-solutions
